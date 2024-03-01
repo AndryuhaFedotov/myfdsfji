@@ -8,7 +8,3 @@ oko
 jikolo
 lokokolq
 fdsfs
-fdsf
-jytjtyj
-fdfhyju
-fd
