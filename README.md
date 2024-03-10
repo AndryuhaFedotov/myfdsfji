@@ -13,5 +13,3 @@ fdds12
 tyjuk
 f
 fdf
-12222
-ffdf
