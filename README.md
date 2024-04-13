@@ -6,6 +6,4 @@ qqq
 11
 okodffdыавыа
 fdsfdf
-kogyftdrse
-ohxfh
-dlkiop
+fdfsfdsf
