@@ -12,8 +12,4 @@ fdsfd
 fdsfdfhj656jh
 fd65gfgавыавы
 fk787686ikj
-fdsfh54hfd
-f67jhfd
-lokokoko98hj
-fdsfj7j
-343563154
+koji
