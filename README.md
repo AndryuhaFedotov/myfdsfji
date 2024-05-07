@@ -7,9 +7,4 @@ qqq
 okodffdыавыа
 fdsfdf
 fdfsfdsf
-dfsdfh6757
-fdsfd
-fdsfdfhj656jh
-fd65gfgавыавы
-fk787686ikj
-koji
+dfsdfh6dfsfdsff1
